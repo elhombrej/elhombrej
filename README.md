@@ -15,5 +15,3 @@
 - 😄 Pronouns: elhombrej
 
 - ⚡ Fun fact: I work hard on week days but on the weekend just work.
-
--->
