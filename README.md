@@ -14,4 +14,4 @@
 
 - 😄 Pronouns: elhombrej
 
-- ⚡ Fun fact: I work hard thhe whole week but on the weekend just work.
+- ⚡ Fun fact: I work hard the whole week but on the weekend just work.
