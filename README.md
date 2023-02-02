@@ -2,7 +2,7 @@
 
 - 🔭 I’m currently working on a personal project called 'Coworking medical companion'.
 
-- 🌱 I’m currently learning Typescript and React Native.
+- 🌱 I’m currently learning MySQL, Typescript and React Native.
 
 - 👯 I’m looking to collaborate on web or java projects.
 
