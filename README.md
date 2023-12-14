@@ -10,7 +10,7 @@
 
 - 💬 Ask me about my life.
 
-- 📫 How to reach me: Joaquinpadron@outlook.com or (+54)1138531167
+- 📫 How to reach me: Joaquinpadron@outlook.com or (+598) 92 723 943
 
 - 😄 Pronouns: elhombrej
 
